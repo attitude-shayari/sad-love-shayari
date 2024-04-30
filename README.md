@@ -17,4 +17,4 @@ Hindi Shayari Love Sad
 अगर हम ही न रहे इस जहां में।
   कुदरत के इन हसीन नजारों का हम क्या करें,
 तुम साथ नही तो इन चांद सितारों का क्या करें। 
-Folow Us on [Attitude Shayayr]([url](https://www.attitudeshayarii.net/))
+Folow Us on [Attitude Shayari]([url](https://www.attitudeshayarii.net/))
